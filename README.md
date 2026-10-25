@@ -1,1 +1,1 @@
-![Wykres odwiedzin](https://seeyoufarm.com)
+![Odwiedziny](https:// ://thosemojos.com)
